@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Rahul.
+- 🌱 I’m currently learning different financial instruements, Algo trading tool creation for equity(cash/F&O) & crypto (Scalping/RR/BF/Strangle/Spread/etc strategy).
+- - 👀 I’m interested in bike riding, cooking, Watching documentary.
+- 📫 One can reach me on Instagram: @hbkrahul19 or Twitter: @hbkrahul19
+- See you.....
